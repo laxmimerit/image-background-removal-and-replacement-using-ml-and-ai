@@ -6,7 +6,7 @@ Full Video 1:
 https://youtu.be/rtHcsPvE7Uw
 
 Full Video 2:
-
+https://youtu.be/Gn_X-VJYjXo
 
 ## Final Look
 <!-- add image Project UI.png -->
